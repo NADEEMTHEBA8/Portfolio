@@ -7,4 +7,5 @@ I am focusing on developing my technical skills as well as expanding my network 
 
 # Contact Me
 LinkedIn: https://www.linkedin.com/in/nadeem-theba-602862208/
+
 Gmail: nadeemtheba8@gmail.com
